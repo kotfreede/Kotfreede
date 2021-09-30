@@ -8,7 +8,7 @@
 
 🥰 I’m looking to collaborate on GitHub
 
-📪 How to reach me ✯°•KOT FREE DE LA HOYA OFF•°✯
+📪 How to reach me [✯°•KOT FREE DE LA HOYA OFF•°✯](https://:t.me/kot_free_de_la_hoya_off)
 
 😇 Fun fact Watching Cartoons
 

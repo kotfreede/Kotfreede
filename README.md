@@ -1,6 +1,6 @@
 ### Hi there 👋 I AM KOT FREE DE LA HOYA
 
-👨‍💻 I’m currently working on [Telegram Bots]
+👨‍💻 I’m currently working on [Telegram Bots](https://t.me/KOT_BOTS) 
 
 😈 I’m A Devoloper 
 
@@ -8,7 +8,7 @@
 
 🥰 I’m looking to collaborate on GitHub
 
-📪 How to reach me [✯°•KOT FREE DE LA HOYA OFF•°✯](https://:t.me/kot_free_de_la_hoya_off)
+📪 How to reach me [✯°•KOT FREE DE LA HOYA OFF•°✯](https://t.me/KOT_FREE_DE_LA_HOYA_OFF)
 
 😇 Fun fact Watching Cartoons
 
